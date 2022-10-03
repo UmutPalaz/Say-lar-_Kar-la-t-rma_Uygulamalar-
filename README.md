@@ -1,0 +1,1 @@
+# Say-lar-_Kar-la-t-rma_Uygulamalar-
